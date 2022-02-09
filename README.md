@@ -1,4 +1,4 @@
-![_Pete Lealiiee Banner_](https://github.com/PeteLealiieeJ/PeteLealiieeJ/blob/main/images/gitbanner.jpeg?raw=true)
+![_Pete Lealiiee Banner_](https://github.com/PeteLealiieeJ/PeteLealiieeJ/blob/main/images/gitbanner2.jpeg?raw=true)
 
 # 🕊 About Me
 
